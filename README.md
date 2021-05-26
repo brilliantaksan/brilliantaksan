@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @brilliantaksan
+- 👀 I’m interested in learning
+- 🌱 I’m currently learning swift
+- 💞️ I’m looking to collaborate on any projects that could help me learn
+- 📫 How to reach me instagram: @brilliantaksan ; email:brilliant.ferdian@gmail.com
